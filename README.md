@@ -1,3 +1,3 @@
 
 
-![](http://cdn.theatlantic.com/static/mt/assets/science/googlekz-615.jpg)
+![](ftp://77.152.96.65/Minecraft-Player-Skins/silver8563.png)
